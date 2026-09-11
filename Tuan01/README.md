@@ -1,3 +1,3 @@
 - Làm trên lớp đc 4/11 bài ( 8/9/2026 )
-- hoàn thành bài tại nhà ( 11/9/2026 )
+- hoàn thành bài tại nhà ( 11/9/2026 ) 
 - hoàn thành bài báo cáo và zip tất cả gửi cho thầy ( 12/0/2026 ) 
